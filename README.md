@@ -1,1 +1,1 @@
-# Tech-Pack
+# Tech-Pack No paid distributation allowed.
